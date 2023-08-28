@@ -1,2 +1,1 @@
-### [**XTrojan黑科技**](https://xtrojancc.github.io) 
-XTrojan黑科技 - 科技向善
+### [**XTrojan黑科技**](https://xtrojancc.github.io) - 科技向善
